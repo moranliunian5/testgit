@@ -1,1 +1,1 @@
-hava a box that fangchong
+hava a box that fangchong(4 yuan)
